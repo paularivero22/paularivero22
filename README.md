@@ -1,1 +1,1 @@
-![Imgur](https://imgur.com/IBROioc)
+[Imgur](https://imgur.com/IBROioc)
