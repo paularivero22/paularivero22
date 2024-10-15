@@ -1,1 +1,1 @@
-[Imgur](https://imgur.com/IBROioc)
+<img src="https://imgur.com/IBROioc">
